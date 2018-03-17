@@ -4,8 +4,6 @@
 <p><a href="https://dou.bz/3cUgzy" rel="nofollow">动态网</a></p>
 <p><a href="http://t.cn/R64Lwzz" rel="nofollow">动态网</a></p>
 <p><a href="http://r.qgoaiyb.gq/01dtw" rel="nofollow">动态网</a></p>
-
-<p>本站网址：<a href="https://x.co/2355" rel="nofollow">https://x.co/2355</a></p>
 <p>联系聚缘阁<a href="mailto:juyuange@gmail.com">juyuange@gmail.com</a></p>
 
   <tr>
