@@ -1,10 +1,6 @@
-<p>【公告】聚缘阁代理新镜像，欢迎使用及推广！<em>2018/3/10</em></p>
-<p>如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
-<p><strong>本站网址：<a href="https://x.co/2355" rel="nofollow">https://x.co/2355</a></strong></p>
 <p><a href="https://dou.bz/3cUgzy" rel="nofollow">动态网</a></p>
 <p><a href="http://t.cn/R64Lwzz" rel="nofollow">动态网</a></p>
 <p><a href="http://r.qgoaiyb.gq/01dtw" rel="nofollow">动态网</a></p>
-<p>联系聚缘阁<a href="mailto:juyuange@gmail.com">juyuange@gmail.com</a></p>
 
   <tr>
     <p><td align=center><strong>请尝试不同入口，进入网门</strong><br/></p>      
