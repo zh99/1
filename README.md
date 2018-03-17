@@ -9,7 +9,7 @@
 <p>联系聚缘阁<a href="mailto:juyuange@gmail.com">juyuange@gmail.com</a></p>
 
   <tr>
-    <td align=center><strong>请尝试不同入口，进入网门</strong><br/>      
+    <p><td align=center><strong>请尝试不同入口，进入网门</strong><br/></p>      
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=oGateg">入口</a>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=oGateg">入口</a>
       <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=oGateg">入口</a><br/>
