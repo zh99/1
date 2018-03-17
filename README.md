@@ -5,11 +5,6 @@
 <p><a href="http://t.cn/R64Lwzz" rel="nofollow">动态网</a></p>
 <p><a href="http://r.qgoaiyb.gq/01dtw" rel="nofollow">动态网</a></p>
 
-        </div>
-
-        <div id="wiki-footer" class="wiki-footer gollum-markdown-content boxed-group">
-          <div class="boxed-group-inner wiki-auxiliary-content  markdown-body">
-            <p>突破封锁 获取信息 解禁思想 重获自由</p>
 <p>本站网址：<a href="https://x.co/2355" rel="nofollow">https://x.co/2355</a></p>
 <p>联系聚缘阁<a href="mailto:juyuange@gmail.com">juyuange@gmail.com</a></p>
 
