@@ -38,9 +38,9 @@
       下载安卓版，更快更方便<br><a href="https://raw.githubusercontent.com/oGate2/up/master/oGate.apk" rel="nofollow">https://git.io/ogatea2</a><br>
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://xztwpydylc.dusnpys7.cf/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://xwjuwsgdd.szzdogate.win/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://xztwpydylc.dusnpys7.cf/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://mibzrqcpjl.xkwrfua.ga/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://pdqcspl.szzd.press/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://mibzrqcpjl.xkwrfua.ga/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
 无界浏览: https://git.io/vEJlj<br>
