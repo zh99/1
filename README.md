@@ -1,9 +1,9 @@
 <p><strong>【公告】本页网址：http://2.gp/zz</strong></p>
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://wayygrbpjk.fyzokuv31.cf/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://jnrkgbytnv.szzd.press/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://wayygrbpjk.fyzokuv31.cf/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://cncuzqcuaznf.fyzokuv31.cf/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://rjvma.szzd.review/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://cncuzqcuaznf.fyzokuv31.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
 无界浏览: https://git.io/vEJlj<br>
