@@ -1,8 +1,8 @@
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://dcottsrviesr.ccekyhf3.ml/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://nfuwf.szzd.review/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://dcottsrviesr.ccekyhf3.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://jrkeyhwdge.ccekyhf3.ml/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://gajxtmswj.szzd.press/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://jrkeyhwdge.ccekyhf3.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
 无界浏览: https://git.io/vEJlj<br>
