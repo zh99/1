@@ -1,13 +1,22 @@
-<br>
+<p><strong>【公告】本页网址：http://2.gp/zz</strong></p>
+<p>动态网代理镜像，欢迎使用及推广！</p>
+<p>如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://nraieyubzo.nepzcgr1.ga/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://ejsaxzy.szzdcdn.men/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://nraieyubzo.nepzcgr1.ga/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://xurwrkqx.nepzcgr1.ga/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://rdsfqknxqk.szzdogate.stream/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://xurwrkqx.nepzcgr1.ga/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
 无界浏览: https://git.io/vEJlj<br>
 自由门安卓版: https://git.io/fgma<br>
 无界浏览安卓版: https://s3.amazonaws.com/693/um.apk<br>
+神州正道安卓4.0+（手机版）： https://git.io/vQjqe<br>
+神州正道安卓4.1+（电视机顶盒版）： https://git.io/vAonz<br>
+神州正道安卓2.3+（手机版）： https://git.io/vAH9P<br>
+神州正道安卓2.3+（手机版）：https://git.io/vA5GO<br>
+旧版和新版的使用环境不同。旧版适合老机子。<br>
+<br>
+<p><strong>聚缘阁</strong></p>
 <p><a href="http://fym.fs32.tk/" rel="nofollow">聚缘阁代理入口</a></p>
 <p><a href="http://e3.99emd.com/?id=7365" rel="nofollow">动态网</a></p>
 <p><a href="http://e3.99emd.com/?id=8" rel="nofollow">退党网</a></p>
