@@ -2,9 +2,9 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://mfovvlxahwlc.tzruxdip56.gq/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://fvqggpng.szzd.press/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://mfovvlxahwlc.tzruxdip56.gq/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://xajxnettop.tzruxdip56.gq/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://emditips.szzdogate.win/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://xajxnettop.tzruxdip56.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
 无界浏览: https://git.io/vEJlj<br>
