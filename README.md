@@ -3,7 +3,7 @@
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://hadvvdzkrii.counucw2.gq/1/" rel="nofollow">动态网</a></p>
-<p><a href="http://wpeloy.szzd.review/1/" rel="nofollow">动态网</a></p>
+<p><a href="http://mzkoxrx.szzd.press/1/" rel="nofollow">动态网</a></p>
 <p><a href="http://hadvvdzkrii.counucw2.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -16,10 +16,3 @@
 旧版和新版的使用环境不同。旧版适合老机子。<br>
 <br>
 <p><strong>聚缘阁</strong></p>
-<p><a href="http://fym.fs32.tk/" rel="nofollow">聚缘阁代理入口</a></p>
-<p><a href="http://e3.99emd.com/?id=7365" rel="nofollow">动态网</a></p>
-<p><a href="http://e3.99emd.com/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="http://e3.99emd.com/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="http://e3.99emd.com/?id=3" rel="nofollow">明慧网</a></p>
-<p><a href="http://e3.99emd.com/?id=16" rel="nofollow">禁闻网</a></p>
-<p><a href="http://e3.99emd.com/?id=11" rel="nofollow">看中国</a></p>
