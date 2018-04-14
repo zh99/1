@@ -2,11 +2,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://dcyssmcuyz.vbpnxuch5.gq/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://118.165.36.168/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoG4Dx" rel="nofollow">三退自救</a></p>
+<p><a href="http://kwsjesciwx.wcytn72.ga/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoG4DJ" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/RmpKfJF" rel="nofollow">网门视频</a></p>
-<p><a href="http://dcyssmcuyz.vbpnxuch5.gq/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://kwsjesciwx.wcytn72.ga/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -19,6 +19,7 @@
 旧版和新版的使用环境不同。旧版适合老机子。<br>
 <br>
 <p><strong>聚缘阁</strong></p>
+<p><a href="http://bbs.toward.fi" rel="nofollow">聚缘阁代理论坛</a></p>
 <p><a href="http://fym.fs32.tk/" rel="nofollow">聚缘阁代理入口</a></p>
 <p><a href="http://e3.99emd.com/?id=7365" rel="nofollow">动态网</a></p>
 <p><a href="http://e3.99emd.com/?id=8" rel="nofollow">退党网</a></p>
