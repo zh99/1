@@ -2,11 +2,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -58,11 +58,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -114,11 +114,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -170,11 +170,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -226,11 +226,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -282,11 +282,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -338,11 +338,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -394,11 +394,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -449,11 +449,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -504,11 +504,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -559,11 +559,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -614,11 +614,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -669,11 +669,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -724,11 +724,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -779,11 +779,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -834,11 +834,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -889,11 +889,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -944,11 +944,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -999,11 +999,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -1054,11 +1054,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -1109,11 +1109,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -1164,11 +1164,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -1219,11 +1219,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.109.86/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUy7" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oi" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rm0wqN2" rel="nofollow">网门视频</a></p>
-<p><a href="http://pmpcbpsy.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://hswngqtod.tfwcios.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.85/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
