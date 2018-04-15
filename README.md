@@ -2,11 +2,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://tqzpqmbz.wnggos2.ga/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://61.230.23.206/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUyz" rel="nofollow">三退自救</a></p>
+<p><a href="http://pxcyyorjwqz.wnggos2.ga/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://219.85.106.210/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoGGsJ" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/RmjwEsF" rel="nofollow">网门视频</a></p>
-<p><a href="http://tqzpqmbz.wnggos2.ga/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://pxcyyorjwqz.wnggos2.ga/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://125.231.112.70/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
@@ -36,15 +36,15 @@
     </td>
   </tr><tr>
     <td align="center">请尝试不同入口，进入动态网址<br>      
-      <a href="https://s3.amazonaws.com/ogate/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=oGateg" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=oGateg" rel="nofollow">入口</a><br>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=oGateg" rel="nofollow">入口</a>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=oGateg" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/ogate/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
+      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
       微信如提示停止访问该网页，须<br>
       先点击右上角，选择浏览器打开<br>
     </td>
