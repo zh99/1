@@ -3,8 +3,8 @@
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://oyntsblfwil.egqubkdj.ml/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://61.228.217.71/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGU0V" rel="nofollow">三退自救</a></p>
+<p><a href="http://219.85.108.144/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoG4hT" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/RmD8UuZ" rel="nofollow">网门视频</a></p>
 <p><a href="http://oyntsblfwil.egqubkdj.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.42.56/2/" rel="nofollow">大纪元新闻网</a></p>
