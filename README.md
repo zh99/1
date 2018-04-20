@@ -5,7 +5,7 @@
 <p><a href="http://poqmhnhqk.lyjbodzd6.gq/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.107.17/1/" rel="nofollow">动态网2</a></p>
 <p><a href="http://t.cn/RJoGbJ0" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RuvMiB9" rel="nofollow">网门视频</a></p>
+<p><a href="http://t.cn/RuvMigJ" rel="nofollow">网门视频</a></p>
 <p><a href="http://poqmhnhqk.lyjbodzd6.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.68.176/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
