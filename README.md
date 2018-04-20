@@ -2,11 +2,11 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://loxtaxgm.ddmgbee56.cf/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://61.228.212.98/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGbJO" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RmD8UuZ" rel="nofollow">网门视频</a></p>
-<p><a href="http://loxtaxgm.ddmgbee56.cf/916415/" rel="nofollow">营救善良</a></p>
+<p><a href="http://kokqhpweycnt.ddmgbee56.cf/1/" rel="nofollow">动态网1</a></p>
+<p><a href="http://61.228.213.58/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoG4Df" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RmD8UEZ" rel="nofollow">网门视频</a></p>
+<p><a href="http://kokqhpweycnt.ddmgbee56.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.42.56/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 自由门: https://git.io/fgp<br>
