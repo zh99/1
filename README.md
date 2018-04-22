@@ -3,9 +3,9 @@
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://gijgwdr.mywuf.gq/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://219.85.104.229/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGqaL" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RuwCa0n" rel="nofollow">网门视频</a></p>
+<p><a href="http://61.230.20.159/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoGU0c" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RuwCaYe" rel="nofollow">网门视频</a></p>
 <p><a href="http://gijgwdr.mywuf.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.66.139/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
