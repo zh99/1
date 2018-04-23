@@ -4,7 +4,7 @@
 <p><strong>神州正道</strong></p>
 <p><a href="http://ttrnow.kgpapsei.cf/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.106.2/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGU0V" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoGbJ0" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Ru4Ioy4" rel="nofollow">网门视频</a></p>
 <p><a href="http://ttrnow.kgpapsei.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://1.170.89.181/2/" rel="nofollow">大纪元新闻网</a></p>
