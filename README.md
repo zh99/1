@@ -4,8 +4,8 @@
 <p><strong>神州正道</strong></p>
 <p><a href="http://qdgau.vlhlcr.gq/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.105.215/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGU0V" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RufG812" rel="nofollow">网门视频</a></p>
+<p><a href="http://t.cn/RJoGbrc" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RufG8nm" rel="nofollow">网门视频</a></p>
 <p><a href="http://qdgau.vlhlcr.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.74.26/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
