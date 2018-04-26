@@ -4,7 +4,7 @@
 <p><strong>神州正道</strong></p>
 <p><a href="http://nlehaxuw.igjxoc.ml/1/" rel="nofollow">动态网1</a></p>
 <p><a href="http://219.85.106.143/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGbJO" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RJoG4oI" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/RuxNaXt" rel="nofollow">网门视频</a></p>
 <p><a href="http://nlehaxuw.igjxoc.ml/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://1.170.90.193/2/" rel="nofollow">大纪元新闻网</a></p>
