@@ -3,9 +3,9 @@
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://vyfgtzodr.omzsb.gq/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://219.85.105.220/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGUyA" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RuIRo2X" rel="nofollow">网门视频</a></p>
+<p><a href="http://61.228.211.71/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoGU0c" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RuIRo4t" rel="nofollow">网门视频</a></p>
 <p><a href="http://vyfgtzodr.omzsb.gq/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.74.26/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
@@ -19,6 +19,15 @@
 旧版和新版的使用环境不同。旧版适合老机子。<br>
 <br>
 <p><strong>聚缘阁</strong></p>
+<p><a href="http://ju9.6433.cf/tv" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://jjt2.f44e4.cf/home" rel="nofollow">聚缘阁</a></p>
+<p><a href="http://ju9.6433.cf/home/?999" rel="nofollow">动态网</a></p>
+<p><a href="http://ju9.6433.cf/home/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="http://ju9.6433.cf/home/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="http://ju9.6433.cf/home/?id=3" rel="nofollow">明慧网</a></p>
+<p><a href="http://ju9.6433.cf/home/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="http://ju9.6433.cf/home/?id=11" rel="nofollow">看中国</a></p>
+<p><a href="http://ju9.6433.cf/?home/id=16" rel="nofollow">禁书网</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
