@@ -3,9 +3,9 @@
 <p>可以向fr45tr@gmail.com 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://bbdqfbcy.ggkhfw57.cf/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://61.228.212.36/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoG4hY" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RuXKe77" rel="nofollow">网门视频</a></p>
+<p><a href="http://61.228.210.106/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoGUyZ" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RuXKewB" rel="nofollow">网门视频</a></p>
 <p><a href="http://bbdqfbcy.ggkhfw57.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://125.231.114.75/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
@@ -17,7 +17,9 @@
 神州正道安卓4.1+（电视机顶盒版）： https://git.io/vAonz<br>
 神州正道安卓2.3+（手机版）： https://git.io/vAH9P<br>
 旧版和新版的使用环境不同。旧版适合老机子。<br>
+<html>
 <iframe align="left" frameborder="0" height="430" important="" src="http://danqing.ddns.net/t/" width="272"></iframe>
+</html>
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="http://ju9.6433.cf/tv" rel="nofollow">聚缘阁视频网</a></p>
