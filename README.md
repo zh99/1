@@ -3,8 +3,8 @@
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://rxybwyep.nxswgltl7.cf/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://61.228.213.250/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoGGSG" rel="nofollow">三退自救</a></p>
+<p><a href="http://219.85.104.15/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoG4oI" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/RuN5fQU" rel="nofollow">网门视频</a></p>
 <p><a href="http://rxybwyep.nxswgltl7.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.47.229/2/" rel="nofollow">大纪元新闻网</a></p>
@@ -25,3 +25,12 @@
 
 <br>
 <p><strong>聚缘阁</strong></p>
+<p><a href="http://ju9.6433.cf/tv" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://jjt2.f44e4.cf/home" rel="nofollow">聚缘阁</a></p>
+<p><a href="http://ju9.6433.cf/9/?999" rel="nofollow">动态网</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=3" rel="nofollow">明慧网</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=11" rel="nofollow">看中国</a></p>
+<p><a href="http://ju9.6433.cf/9/?id=16" rel="nofollow">禁书网</a></p>
