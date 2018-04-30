@@ -3,9 +3,9 @@
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
 <p><a href="http://rxybwyep.nxswgltl7.cf/1/" rel="nofollow">动态网1</a></p>
-<p><a href="http://219.85.104.16/1/" rel="nofollow">动态网2</a></p>
-<p><a href="http://t.cn/RJoG4DJ" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/RuNmAGa" rel="nofollow">网门视频</a></p>
+<p><a href="http://61.228.181.205/1/" rel="nofollow">动态网2</a></p>
+<p><a href="http://t.cn/RJoGU0V" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RuNmA5q" rel="nofollow">网门视频</a></p>
 <p><a href="http://rxybwyep.nxswgltl7.cf/916415/" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.47.229/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
@@ -25,7 +25,6 @@
 
 <br>
 <p><strong>聚缘阁</strong></p>
-<p><a href="https://s3-ap-southeast-1.amazonaws.com/jyg-sp/index.html" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://ju9.6433.cf/tv" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://jjt2.f44e4.cf/home" rel="nofollow">聚缘阁</a></p>
 <p><a href="http://ju9.6433.cf/9/?999" rel="nofollow">动态网</a></p>
