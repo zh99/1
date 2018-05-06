@@ -2,13 +2,13 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70wmdw" rel="nofollow">动态网3</a></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70sdtw" rel="nofollow">动态网4</a></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70st/" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/Rugws0M" rel="nofollow">网门视频</a></p>
-<p><a href="http://cjyxc.ebqdoyq.ga/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70wmdw" rel="nofollow">动态网3</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70sdtw" rel="nofollow">动态网4</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70st/" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/RugA2CS" rel="nofollow">网门视频</a></p>
+<p><a href="http://wxeobux.ttkcnloi.cf/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.71.160/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
@@ -27,6 +27,15 @@
 
 <br>
 <p><strong>聚缘阁</strong></p>
+<p><a href="http://t8.b66f.tk" rel="nofollow">聚缘阁</a></p>
+<p><a href="http://t8.b66f.tk" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://ju9.6433.cf/?hgf" rel="nofollow">动态网</a></p>
+<p><a href="http://t8.b66f.tk/" rel="nofollow">退党网</a></p>
+<p><a href="http://t8.b66f.tk" rel="nofollow">新唐人</a></p>
+<p><a href="http://t8.b66f.tk" rel="nofollow">明慧网</a></p>
+<p><a href="http://jt8.b66f.tk" rel="nofollow">大纪元</a></p>
+<p><a href="http://t8.b66f.tk" rel="nofollow">看中国</a></p>
+<p><a href="http://t8.b66f.tk/?id=16" rel="nofollow">禁书网</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
