@@ -2,13 +2,13 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://wmxaf.jezozaw.cf/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://wmxaf.jezozaw.cf/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://wmxaf.jezozaw.cf/70wmdw" rel="nofollow">动态网3</a></p>
-<p><a href="http://wmxaf.jezozaw.cf/70sdtw" rel="nofollow">动态网4</a></p>
-<p><a href="http://wmxaf.jezozaw.cf/70st/" rel="nofollow">三退自救</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70wmdw" rel="nofollow">动态网3</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70sdtw" rel="nofollow">动态网4</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70st/" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/Rusq9xe" rel="nofollow">网门视频</a></p>
-<p><a href="http://wmxaf.jezozaw.cf/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://rwdpvrmq.jezozaw.cf/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.91.56/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
@@ -27,13 +27,13 @@
 
 <br>
 <p><strong>聚缘阁</strong></p>
-<p><a href="https://shouji.ee99.qww68.com/?bb" rel="nofollow">动态网</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=5" rel="nofollow">新唐人</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=3" rel="nofollow">明慧网</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=11" rel="nofollow">看中国</a></p>
-<p><a href="https://shouji.ee99.qww68.com/?id=16" rel="nofollow">禁书网</a></p>
+<p><a href="https://cw.jyg9.macao.net/?bb" rel="nofollow">动态网</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=3" rel="nofollow">明慧网</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=11" rel="nofollow">看中国</a></p>
+<p><a href="https://cw.jyg9.macao.net/?id=16" rel="nofollow">禁书网</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
