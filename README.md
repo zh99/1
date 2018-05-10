@@ -2,13 +2,13 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70wmdw" rel="nofollow">动态网3</a></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70sdtw" rel="nofollow">动态网4</a></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70st" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/R3w5SI5" rel="nofollow">网门视频</a></p>
-<p><a href="http://rqnhij.izrtcsf.gq/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70wmdw" rel="nofollow">动态网3</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70sdtw" rel="nofollow">动态网4</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/R3w5SxY" rel="nofollow">网门视频</a></p>
+<p><a href="http://phhmlt.gpzeukry.ml/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://125.231.116.224/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
@@ -27,12 +27,3 @@
 
 <br>
 <p><strong>聚缘阁</strong></p>
-<p><a href="http://jygtv.cer4.ga/tv/" rel="nofollow">聚缘阁视频网</a></p>
-<p><a href="http://de2.214y.ga" rel="nofollow">聚缘阁</a></p>
-<p><a href="http://j99.214g.gq/dtw/?bb" rel="nofollow">动态网</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=5" rel="nofollow">新唐人</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=8" rel="nofollow">明慧网</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=11" rel="nofollow">看中国</a></p>
-<p><a href="http://j99.214g.gq/dtw/?id=16" rel="nofollow">禁书网</a></p>
