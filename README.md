@@ -2,13 +2,13 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70wmdw" rel="nofollow">动态网3</a></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70sdtw" rel="nofollow">动态网4</a></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70wmdw" rel="nofollow">动态网3</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70sdtw" rel="nofollow">动态网4</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70st" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/R3tyeGJ" rel="nofollow">网门视频</a></p>
-<p><a href="http://hrgdwshe.gcashj.ml/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://wrhaecu.izrtcsf.gq/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.92.43/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
@@ -28,7 +28,7 @@
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<p><a href="https://jygtv.cer4.ga/tv/" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="https://jyg8.511as4.ml/tv/" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://24.jyghome.macao.net/" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="https://bcce.cee4.gq/" rel="nofollow">聚缘阁二站</a></p>
 <p><a href="http://j99.214g.gq/dtw/?bb" rel="nofollow">动态网</a></p>
