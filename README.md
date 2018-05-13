@@ -2,13 +2,13 @@
 <p>动态网代理镜像，欢迎使用及推广！如果弹出的网址有**"error1016"**字样，刷新一下网页就可以正常访问了。</p>
 <p>可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70wmdw" rel="nofollow">动态网3</a></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70sdtw" rel="nofollow">动态网4</a></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70st" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/R3fzbPi" rel="nofollow">网门视频</a></p>
-<p><a href="http://mjlxu.izrtcsf.gq/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70wmdw" rel="nofollow">动态网3</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70sdtw" rel="nofollow">动态网4</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://t.cn/R3fzb79" rel="nofollow">网门视频</a></p>
+<p><a href="http://ptkcm.behjsd.gq/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://36.233.90.25/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
