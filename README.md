@@ -2,11 +2,11 @@
 <p>如果弹出的网页有"error"字样，刷新一下就可正常访问</p>
 <p>也可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
 <p><strong>神州正道</strong></p>
-<p><a href="http://qcptemth.qkwkhtgq.ml/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://qcptemth.qkwkhtgq.ml/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://qcptemth.qkwkhtgq.ml/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://zndwv.yspjgjq.gq/70dw" rel="nofollow">动态网1</a></p>
+<p><a href="http://zndwv.yspjgjq.gq/70ipdw" rel="nofollow">动态网2</a></p>
+<p><a href="http://zndwv.yspjgjq.gq/70st" rel="nofollow">三退自救</a></p>
 <p><a href="http://t.cn/R3a6JTU" rel="nofollow">网门视频</a></p>
-<p><a href="http://qcptemth.qkwkhtgq.ml/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://zndwv.yspjgjq.gq/70qg" rel="nofollow">营救善良</a></p>
 <p><a href="http://1.165.108.199/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
