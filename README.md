@@ -1,13 +1,32 @@
-<p><strong>【公告】本页网址：http://x.co/3322</strong></p>
-<p>如果弹出的网页有"error"字样，刷新一下就可正常访问</p>
-<p>也可以向 <strong>fr45tr@gmail.com</strong> 发信索取最新的翻墙网址</p>
+<p><strong>本页简易网址 http://x.co/3322 或者  http://2.gp/zz</strong></p>
+<p>如果弹出"error"出错网页，刷新一下可正常访问</p>
+<p>可向 <strong>fr45tr@gmail.com</strong> 发信索取最新翻墙网址</p>
+<td align="center"><a target="_blank" href="https://user-images.githubusercontent.com/33987457/34963548-1d630d1e-fa84-11e7-90bf-b19621f43f9c.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
+  </tr>
+  <tr>
+    <td align="center"><br>
+    </td>
+  </tr><tr>
+    <td align="center">请尝试不同入口，进入动态网<br>  
+      <a href="t.cn/RXJlx1v" rel="nofollow">入口</a>
+      <a href="1.165.108.199" rel="nofollow">入口</a>
+      <a href="111.253.221.95" rel="nofollow">入口</a><br>
+      <a href="http://djagus.gmarenaq.ga" rel="nofollow">入口</a>
+      <a href="nbcxz.hbyaakh.gq" rel="nofollow">入口</a>
+      <a href="http://djagus.gmarenaq.ga/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://djagus.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://t.cn/R3STV9o" rel="nofollow">入口</a>
+      <a href="https://web-proxy-1.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php">入口</a><br>
+
+
 <p><strong>神州正道</strong></p>
-<p><a href="http://kmpwanhr.nwrzawk.gq/70dw" rel="nofollow">动态网1</a></p>
-<p><a href="http://kmpwanhr.nwrzawk.gq/70ipdw" rel="nofollow">动态网2</a></p>
-<p><a href="http://kmpwanhr.nwrzawk.gq/70st" rel="nofollow">三退自救</a></p>
-<p><a href="http://t.cn/R3a6Jl9" rel="nofollow">网门视频</a></p>
-<p><a href="http://kmpwanhr.nwrzawk.gq/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://djagus.gmarenaq.ga/0" rel="nofollow">神州正道<</a></p>
+<p><a href="http://djagus.gmarenaq.ga/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://djagus.gmarenaq.ga/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://djagus.gmarenaq.ga/70sj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://1.165.108.199/2/" rel="nofollow">大纪元新闻网</a></p>
+<p><a href="http://t.cn/R3STVxF" rel="nofollow">网门视频1</a></p>
+<p><a href="xcxgm.drlzorq.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
