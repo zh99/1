@@ -8,25 +8,25 @@
     </td>
   </tr><tr>
     <td align="center">请尝试不同入口，进入动态网<br>  
-      <a href="http://t.cn/RakO3oj" rel="nofollow">入口</a>
+      <a href="http://t.cn/RX1SBXN" rel="nofollow">入口</a>
       <a href="http://1.165.108.199/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://iwsvm.izrtcsf.gq/70dw" rel="nofollow">入口</a>
+      <a href="http://tdwexh.gmarenaq.ga/70dw" rel="nofollow">入口</a>
       <a href="http://nbcxz.hbyaakh.gq/1" rel="nofollow">入口</a>
-      <a href="http://iwsvm.izrtcsf.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://iwsvm.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://tdwexh.gmarenaq.ga/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://tdwexh.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
       <a href="http://t.cn/R3STV9o" rel="nofollow">入口</a>
       <a href="https://web-proxy-1.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://iwsvm.izrtcsf.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://iwsvm.izrtcsf.gq/70st" rel="nofollow">三退自救</a></p>
-<p><a href="http://iwsvm.izrtcsf.gq/70qg" rel="nofollow">营救善良</a></p>
-<p><a href="http://iwsvm.izrtcsf.gq/70sj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://tdwexh.gmarenaq.ga/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://tdwexh.gmarenaq.ga/70st" rel="nofollow">三退自救</a></p>
+<p><a href="http://tdwexh.gmarenaq.ga/70qg" rel="nofollow">营救善良</a></p>
+<p><a href="http://tdwexh.gmarenaq.ga/70sj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://1.165.108.199/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://http://t.cn/R3STVxF" rel="nofollow">网门视频1</a></p>
-<p><a href="rdrpcx.bdcadfdl.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="dyfma.prfuox.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
