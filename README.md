@@ -1,7 +1,7 @@
 <p><strong>本页简易网址</strong></p>
 <p><strong>http://2.gp/zz</strong></p>
 <p><strong>http://x.co/3322</strong></p>
-<p><strong>http://t.cn/R63tozm</strong></p>
+<p><strong>http://t.cn/R6oylSi</strong></p>
 <p>如果弹出"error"出错网页，刷新一下可正常访问</p>
 <p>可向 <strong>fr45tr@gmail.com</strong> 发信索取最新翻墙网址</p>
 <td align="center"><a target="_blank" href="https://user-images.githubusercontent.com/33987457/34963548-1d630d1e-fa84-11e7-90bf-b19621f43f9c.jpg"><img src="https://user-images.githubusercontent.com/33987457/34963548-1d630d1e-fa84-11e7-90bf-b19621f43f9c.jpg" style="max-width:100%;"></a></td>
@@ -11,25 +11,25 @@
     </td>
   </tr><tr>
     <td align="center">请尝试不同入口，进入动态网<br>  
-      <a href="http://vuqzpkn.izrtcsf.gq/70cdtw" rel="nofollow">入口</a>
+      <a href="http://qpbzjc.psvdhgqa.ml/70cdtw" rel="nofollow">入口</a>
       <a href="http://36.233.76.27/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://vuqzpkn.izrtcsf.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://qpbzjc.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a>
       <a href="http://nbcxz.hbyaakh.gq/1" rel="nofollow">入口</a>
-      <a href="http://vuqzpkn.izrtcsf.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://vuqzpkn.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://qpbzjc.psvdhgqa.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://qpbzjc.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
       <a href="http://t.cn/R3KLNVe" rel="nofollow">入口</a>
       <a href="https://web-proxy-1.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://vuqzpkn.izrtcsf.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://vuqzpkn.izrtcsf.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://vuqzpkn.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://vuqzpkn.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://qpbzjc.psvdhgqa.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://qpbzjc.psvdhgqa.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://qpbzjc.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://qpbzjc.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.76.27/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://http://t.cn/R3KLNb0" rel="nofollow">网门视频1</a></p>
-<p><a href="http://keugc.prkxmztz.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://sshrv.qzxgfh.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -48,18 +48,16 @@
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<h1>
-<a id="user-content-代理维护升级中暂停服务" class="anchor" href="#%E4%BB%A3%E7%90%86%E7%BB%B4%E6%8A%A4%E5%8D%87%E7%BA%A7%E4%B8%AD%E6%9A%82%E5%81%9C%E6%9C%8D%E5%8A%A1" aria-hidden="true"><svg class="octicon octicon-link" viewbox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path fill-rule="evenodd" d="M4 9h1v1H4c-1.5 0-3-1.69-3-3.5S2.55 3 4 3h4c1.45 0 3 1.69 3 3.5 0 1.41-.91 2.72-2 3.25V8.59c.58-.45 1-1.27 1-2.09C10 5.22 8.98 4 8 4H4c-.98 0-2 1.22-2 2.5S3 9 4 9zm9-3h-1v1h1c1 0 2 1.22 2 2.5S13.98 12 13 12H9c-.98 0-2-1.22-2-2.5 0-.83.42-1.64 1-2.09V6.25c-1.09.53-2 1.84-2 3.25C6 11.31 7.55 13 9 13h4c1.45 0 3-1.69 3-3.5S14.5 6 13 6z"></path></svg></a>代理维护升级中。。。。暂停服务。。。</h1>
 <p><a href="http://u77.cer4.ga/tv/" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="https://j99.214g.gq/tz/" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="https://j99.214g.gq/tz/" rel="nofollow">聚缘阁二站</a></p>
-<p><a href="https://j99.214g.gq/cx/?bb" rel="nofollow">动态网</a></p>
-<p><a href="http://j99.214g.gq/cx/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="https://j99.214g.gq/cx/?id=5" rel="nofollow">新唐人</a></p>
-<p><a href="https://j99.214g.gq/cx/?id=8" rel="nofollow">明慧网</a></p>
-<p><a href="http://j99.214g.gq/cx/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="http://j99.214g.gq/cx/?id=11" rel="nofollow">看中国</a></p>
-<p><a href="http://j99.214g.gq/cx/?id=16" rel="nofollow">禁书网</a></p>
+<p><a href="https://j99.214g.gq/j9/?hfe" rel="nofollow">动态网</a></p>
+<p><a href="http://j99.214g.gq/j9/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="https://j99.214g.gq/j9/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="https://j99.214g.gq/j9/?id=8" rel="nofollow">明慧网</a></p>
+<p><a href="http://j99.214g.gq/j9/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="http://j99.214g.gq/j9/?id=11" rel="nofollow">看中国</a></p>
+<p><a href="http://j99.214g.gq/j9/?id=16" rel="nofollow">禁书网</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
