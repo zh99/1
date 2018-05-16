@@ -9,22 +9,22 @@
       <a href="http://t.cn/R3CTgLL" rel="nofollow">入口</a>
       <a href="http://36.233.76.27/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://bszda.behjsd.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://iiqinndw.behjsd.gq/70fdtw" rel="nofollow">入口</a>
       <a href="http://dzildt.sgfvt.ml/1" rel="nofollow">入口</a>
-      <a href="http://bszda.behjsd.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://bszda.behjsd.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://bszda.behjsd.gq/70cdtw" rel="nofollow">入口</a>
+      <a href="http://iiqinndw.behjsd.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://iiqinndw.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://iiqinndw.behjsd.gq/70cdtw" rel="nofollow">入口</a>
       <a href="https://drerw.herokuapp.com/?m" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://bszda.behjsd.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://bszda.behjsd.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://bszda.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://bszda.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://iiqinndw.behjsd.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://iiqinndw.behjsd.gq/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://iiqinndw.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://iiqinndw.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.76.27/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://http://t.cn/R3CTde8" rel="nofollow">网门视频1</a></p>
-<p><a href="http://txyelgf.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://eueluiw.axbiyssi.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
