@@ -1,5 +1,5 @@
-本页用火狐或Chrome浏览器打开更顺利。如果页面"error"出错，试着刷新一下看能否正常访问。<br>
-可向 <strong>fr45tr@gmail.com</strong> 发信索取用于推广的网址
+本页用火狐或Chrome浏览器打开更顺利。如果页面"error"出错，试着刷新一下看能否正常访问。
+<p>可向 <strong>fr45tr@gmail.com</strong> 发信索取用于推广的网址</p>
 <br>
 <p><strong>简易网址</strong></p>
 <strong>http://2.gp/zz</strong>
@@ -9,22 +9,22 @@
       <a href="http://t.cn/R3KLNVe" rel="nofollow">入口</a>
       <a href="http://36.233.76.27/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://rmiiqx.qkwkhtgq.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://dybanip.gcashj.ml/70fdtw" rel="nofollow">入口</a>
       <a href="http://dzildt.sgfvt.ml/1" rel="nofollow">入口</a>
-      <a href="http://rmiiqx.qkwkhtgq.ml/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://rmiiqx.qkwkhtgq.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://rmiiqx.qkwkhtgq.ml/70cdtw" rel="nofollow">入口</a>
+      <a href="http://dybanip.gcashj.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://dybanip.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://dybanip.gcashj.ml/70cdtw" rel="nofollow">入口</a>
       <a href="https://drerw.herokuapp.com/?m" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://rmiiqx.qkwkhtgq.ml/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://rmiiqx.qkwkhtgq.ml/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://rmiiqx.qkwkhtgq.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://rmiiqx.qkwkhtgq.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://dybanip.gcashj.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://dybanip.gcashj.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://dybanip.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://dybanip.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.76.27/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://http://t.cn/R3KLNb0" rel="nofollow">网门视频1</a></p>
-<p><a href="http://fkrfvy.nmeluml.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://virqidbp.sdfadf.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
