@@ -1,7 +1,7 @@
 <p><strong>本页简易网址</strong></p>
 <p><strong>http://2.gp/zz</strong></p>
 <p><strong>http://x.co/3322</strong></p>
-<p><strong>http://t.cn/R6pVdyO</strong></p>
+<p><strong>http://t.cn/Ra9wm1S</strong></p>
 <p>如果弹出"error"出错网页，刷新一下可正常访问</p>
 <p>可向 <strong>fr45tr@gmail.com</strong> 发信索取最新翻墙网址</p>
 <td align="center"><a target="_blank" href="https://user-images.githubusercontent.com/33987457/34963548-1d630d1e-fa84-11e7-90bf-b19621f43f9c.jpg"><img src="https://user-images.githubusercontent.com/33987457/34963548-1d630d1e-fa84-11e7-90bf-b19621f43f9c.jpg" style="max-width:100%;"></a></td>
@@ -11,25 +11,25 @@
     </td>
   </tr><tr>
     <td align="center">请尝试不同入口，进入动态网<br>  
-      <a href="http://ywqtu.nwrzawk.gq/70cdtw" rel="nofollow">入口</a>
+      <a href="http://spbtk.izrtcsf.gq/70cdtw" rel="nofollow">入口</a>
       <a href="http://36.233.76.27/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://ywqtu.nwrzawk.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://spbtk.izrtcsf.gq/70fdtw" rel="nofollow">入口</a>
       <a href="http://nbcxz.hbyaakh.gq/1" rel="nofollow">入口</a>
-      <a href="http://ywqtu.nwrzawk.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://ywqtu.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://spbtk.izrtcsf.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://spbtk.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
       <a href="http://t.cn/R3KLNVe" rel="nofollow">入口</a>
       <a href="https://web-proxy-1.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://ywqtu.nwrzawk.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://ywqtu.nwrzawk.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://ywqtu.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ywqtu.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://spbtk.izrtcsf.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://spbtk.izrtcsf.gq/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://spbtk.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://spbtk.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.76.27/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://http://t.cn/R3KLNb0" rel="nofollow">网门视频1</a></p>
-<p><a href="http://cfewzyon.mtdbgear.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://hmjwd.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
