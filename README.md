@@ -11,22 +11,22 @@
       <a href="http://t.cn/R3p7W81" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://yocutl.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://sindz.zijzq.cf/1" rel="nofollow">入口</a>
-      <a href="http://yocutl.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://yocutl.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://vakby.gpzeukry.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://woztl.zijzq.cf/1" rel="nofollow">入口</a>
+      <a href="http://vakby.gpzeukry.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://vakby.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://drerw.herokuapp.com/?m" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://yocutl.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://yocutl.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://yocutl.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://yocutl.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://vakby.gpzeukry.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://vakby.gpzeukry.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://vakby.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://vakby.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R3p7WWB" rel="nofollow">网门视频1</a></p>
-<p><a href="http://wgvkmn.tithmecb.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://prwnw.fqobui.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -45,7 +45,7 @@
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<p><a href="http://u77.cer4.ga/tv/" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://9987.44ws.ga/tv/" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="https://j99.214g.gq/tz/" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="https://j99.214g.gq/tz/" rel="nofollow">聚缘阁二站</a></p>
 <p><a href="https://j99.214g.gq/j9/?hfe" rel="nofollow">动态网</a></p>
