@@ -1,5 +1,5 @@
-本页用火狐或Chrome浏览器打开更顺利。如果页面"error"出错，试着刷新一下看能否正常访问。
-<p>可向 <strong>fr45tr@gmail.com</strong> 发信索取用于推广的网址</p>
+本页用火狐或Chrome浏览器打开更顺利。如果页面"error"出错，试着刷新一下。
+<p>可向 <strong>fr45tr@gmail.com</strong> 发信索取用于推广的网址。</p>
 <br>
 <p><strong>简易网址</strong></p>
 <strong>http://aaa3.ga</strong><br>
@@ -11,22 +11,22 @@
       <a href="http://t.cn/R3p7W81" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://gjswxm.nwrzawk.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://ahtbov.kkwdt.ga/1" rel="nofollow">入口</a>
-      <a href="http://gjswxm.nwrzawk.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://gjswxm.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://nlqgbe.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://rfiimzooy.kkwdt.ga/1" rel="nofollow">入口</a>
+      <a href="http://nlqgbe.psvdhgqa.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://nlqgbe.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://drerw.herokuapp.com/?m" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://gjswxm.nwrzawk.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://gjswxm.nwrzawk.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://gjswxm.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://gjswxm.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://nlqgbe.psvdhgqa.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://nlqgbe.psvdhgqa.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://nlqgbe.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://nlqgbe.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R3p7WWB" rel="nofollow">网门视频1</a></p>
-<p><a href="http://akjyjlsq.rsokuutx.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://emghv.owenc.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
