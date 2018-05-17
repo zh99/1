@@ -2,7 +2,7 @@
 <p>可向 <strong>fr45tr@gmail.com</strong> 发信索取用于推广的网址。</p>
 <br>
 <p><strong>简易网址</strong></p>
-http://aaa3.ga<br>
+http://2ccc.cf<br>
 http://2.gp/zz<br>
 http://x.co/3322<br>
 <br>
@@ -11,22 +11,22 @@ http://x.co/3322<br>
       <a href="http://t.cn/R30UXAW" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://imtlr.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://lsaqxr.hwwcu.cf/1" rel="nofollow">入口</a>
-      <a href="http://imtlr.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://imtlr.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://enojpz.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://yczfw.hwwcu.cf/1" rel="nofollow">入口</a>
+      <a href="http://enojpz.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://enojpz.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://i-jyg.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://imtlr.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://imtlr.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://imtlr.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://imtlr.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://enojpz.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://enojpz.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://enojpz.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://enojpz.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R30UX7v" rel="nofollow">网门视频1</a></p>
-<p><a href="http://qebelh.gqrnivpt.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://mdxur.hnglntgu.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
