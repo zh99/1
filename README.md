@@ -11,22 +11,22 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3OMuZ4" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://smefzwjh.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://vpbqdoq.hwwcu.cf/1" rel="nofollow">入口</a>
-      <a href="http://smefzwjh.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://smefzwjh.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://hrguzhh.gpzeukry.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://lsaqzaqxm.hwwcu.cf/1" rel="nofollow">入口</a>
+      <a href="http://hrguzhh.gpzeukry.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://hrguzhh.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://i-jyg.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://smefzwjh.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://smefzwjh.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://smefzwjh.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://smefzwjh.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://hrguzhh.gpzeukry.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://hrguzhh.gpzeukry.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://hrguzhh.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://hrguzhh.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R30UX7v" rel="nofollow">网门视频1</a></p>
-<p><a href="http://dtlvck.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://zzbpegvx.qicozx.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -67,7 +67,7 @@ http://x.co/3322<br>
     <td align="center">请尝试不同入口，进入动态网址<br>      
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://konhgd.global.ssl.fastly.net/?from=852" rel="nofollow">入口</a><br>
+      <a href="https://s3.amazonaws.com/ogate/show.htm?from=852" rel="nofollow">入口</a><br>
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a><br>
