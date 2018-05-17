@@ -11,22 +11,22 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3OMuZ4" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://lumvx.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://zxmemtes.fptnsop.ga/1" rel="nofollow">入口</a>
-      <a href="http://lumvx.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://lumvx.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://sxbkccvx.izrtcsf.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://jkqbqyltv.fptnsop.ga/1" rel="nofollow">入口</a>
+      <a href="http://sxbkccvx.izrtcsf.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://sxbkccvx.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://i-jyg.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://lumvx.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://lumvx.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://lumvx.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://lumvx.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://sxbkccvx.izrtcsf.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://sxbkccvx.izrtcsf.gq/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://sxbkccvx.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://sxbkccvx.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R30UX7v" rel="nofollow">网门视频1</a></p>
-<p><a href="http://jbyzzsh.slmwsjzd.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ljbsjgap.qhbuletq.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
