@@ -8,25 +8,25 @@
 <br>
 <strong>动态网</strong>
 <br>
-      <a href="http://t.cn/R3p7W81" rel="nofollow">入口</a>
+      <a href="http://t.cn/R30UXAW" rel="nofollow">入口</a>
       <a href="http://125.231.112.65/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://gsdyvwk.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://ljnsomb.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
       <a href="http://psurbdmb.tdqrer.ga/1" rel="nofollow">入口</a>
-      <a href="http://gsdyvwk.psvdhgqa.ml/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://gsdyvwk.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ljnsomb.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://ljnsomb.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://drerw55.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 <p><strong>神州正道</strong></p>
-<p><a href="http://gsdyvwk.psvdhgqa.ml/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://gsdyvwk.psvdhgqa.ml/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://gsdyvwk.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://gsdyvwk.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ljnsomb.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://ljnsomb.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://ljnsomb.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ljnsomb.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://125.231.112.65/2/" rel="nofollow">大纪元新闻网</a></p>
-<p><a href="http://t.cn/R3p7WWB" rel="nofollow">网门视频1</a></p>
-<p><a href="http://pwbebtah.rtergqjk.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/R30UX7v" rel="nofollow">网门视频1</a></p>
+<p><a href="http://fcfljh.dhsiaj.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -37,7 +37,7 @@
 <p><a href="https://git.io/ogatea2">网门安卓版</a></p>
 <p><a href="https://git.io/vQjqe" rel="nofollow">神州正道安卓4.0+（手机版）</a></p>
 <p><a href="https://git.io/vAonz" rel="nofollow">神州正道安卓4.1+（电视机顶盒版）</a></p>
-<p><a href="https://git.io/vAH9P" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
+<p><a href="https://git.io/vA5GO" rel="nofollow">神州正道安卓2.3+（手机版）</a></p>
 <p><a href="https://github.com/bannedbook/fanqiang/wiki">更多翻墙软件</a></p>
 旧版和新版的使用环境不同。旧版适合老机子。<br>
 
