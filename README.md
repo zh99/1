@@ -1,6 +1,6 @@
 <td align="center"><a target="_blank" href="https://raw.githubusercontent.com/szzd1/2/master/2.jpg"><img src="https://raw.githubusercontent.com/szzd1/2/master/2.jpg" style="max-width:100%;"></a></td><br>
-<strong>如果页面"error"出错，刷新一下。</strong>
-<p><strong>可向 fr45tr@gmail.com 发信索取用于推广的网址。</strong></p>
+<strong>可向 fr45tr@gmail.com 发信索取用于推广的网址。</strong>
+<p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
 http://2ccc.cf<br>
@@ -12,22 +12,22 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3lDx0A" rel="nofollow">入口</a>
       <a href="http://36.233.94.219/1" rel="nofollow">入口</a>
       <a href="http://111.253.221.95/1" rel="nofollow">入口</a><br>
-      <a href="http://aebqju.yspjgjq.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://eefzohsh.qkwkhtgq.ml/70fdtw" rel="nofollow">入口</a>
       <a href="http://mxjtjxk.vljxr.gq/1" rel="nofollow">入口</a>
-      <a href="http://aebqju.yspjgjq.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://aebqju.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://eefzohsh.qkwkhtgq.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://eefzohsh.qkwkhtgq.ml/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://i-jyg.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://aebqju.yspjgjq.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://aebqju.yspjgjq.gq/70gst" rel="nofollow">三退自救</a></p>
-<p><a href="http://aebqju.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://aebqju.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://eefzohsh.qkwkhtgq.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://eefzohsh.qkwkhtgq.ml/70gst" rel="nofollow">三退自救</a></p>
+<p><a href="http://eefzohsh.qkwkhtgq.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://eefzohsh.qkwkhtgq.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.94.219/2/" rel="nofollow">大纪元新闻网</a></p>
 <p><a href="http://t.cn/R3lDMg0" rel="nofollow">网门视频1</a></p>
-<p><a href="http://nvzun.apvpeai.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://yzmiysao.dhsiaj.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
