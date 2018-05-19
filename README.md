@@ -12,23 +12,23 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3Q0OdT" rel="nofollow">入口</a>
       <a href="http://36.233.73.173/1" rel="nofollow">入口</a>
       <a href="http://1.170.91.54/1" rel="nofollow">入口</a><br>
-      <a href="http://zjsggnq.gmarenaq.ga/70fdtw" rel="nofollow">入口</a>
-      <a href="http://ifoxalz.cflaee.ga/1" rel="nofollow">入口</a>
-      <a href="http://zjsggnq.gmarenaq.ga/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://zjsggnq.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://bgbrx.gcashj.ml/70fdtw" rel="nofollow">入口</a>
+      <a href="http://ktdvdhj.ybcfiee.cf/1" rel="nofollow">入口</a>
+      <a href="http://bgbrx.gcashj.ml/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://bgbrx.gcashj.ml/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://i-jyg.herokuapp.com/?jyg" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://zjsggnq.gmarenaq.ga/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://zjsggnq.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://zjsggnq.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://bgbrx.gcashj.ml/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://bgbrx.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://bgbrx.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.73.173/2/" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3Q0WvK">三退自救1</a></p>
-<p><a href="http://zjsggnq.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://bgbrx.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3Q0OuK" rel="nofollow">网门视频1</a></p>
-<p><a href="http://gdlmlv.rpzjp.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://feogyr.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
