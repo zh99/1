@@ -12,10 +12,10 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3EIXRn" rel="nofollow">入口</a>
       <a href="http://36.233.44.40/1" rel="nofollow">入口</a>
       <a href="http://1.170.91.54/1" rel="nofollow">入口</a><br>
-      <a href="http://actlhlfg.gpzeukry.ml/70fdtw" rel="nofollow">入口</a>
-      <a href="http://kjrseo.fczqd.gq/1" rel="nofollow">入口</a>
-      <a href="http://actlhlfg.gpzeukry.ml/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://actlhlfg.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://vitxi.gmarenaq.ga/70fdtw" rel="nofollow">入口</a>
+      <a href="http://kqxsywh.fczqd.gq/1" rel="nofollow">入口</a>
+      <a href="http://vitxi.gmarenaq.ga/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://vitxi.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://web-proxy-1.herokuapp.com/proxy/http://dongtaiwang.com/loc/phome.php" rel="nofollow">入口</a><br>
 
@@ -23,12 +23,12 @@ http://x.co/3322<br>
 <p><a href="http://t.cn/R3EIX13" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3EIXFn" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3EIaA1" rel="nofollow">无界浏览</a></p>
-<p><a href="http://actlhlfg.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://actlhlfg.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://vitxi.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://vitxi.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3EIXik">三退自救1</a></p>
-<p><a href="http://actlhlfg.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://vitxi.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3EIXfE" rel="nofollow">网门视频1</a></p>
-<p><a href="http://igwflzm.tgrjksqw.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ggayaan.dhsiaj.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
