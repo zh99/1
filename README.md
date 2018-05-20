@@ -1,4 +1,4 @@
-<td align="center"><a target="_blank" href="https://raw.githubusercontent.com/szzd1/2/master/2.jpg"><img src="https://raw.githubusercontent.com/szzd1/2/master/2.jpg" style="max-width:100%;"></a></td><br>
+<td align="center"><a target="_blank" href="https://raw.githubusercontent.com/szzd1/2/master/3.jpg"><img src="https://raw.githubusercontent.com/szzd1/2/master/3.jpg" style="max-width:100%;"></a></td><br>
 <strong>可向 fr45tr@gmail.com 发信索取用于推广的网址。</strong>
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
@@ -12,23 +12,23 @@ http://x.co/3322<br>
       <a href="http://t.cn/R3RI3eg" rel="nofollow">入口</a>
       <a href="http://36.233.44.40/1" rel="nofollow">入口</a>
       <a href="http://1.170.91.54/1" rel="nofollow">入口</a><br>
-      <a href="http://bhnzk.behjsd.gq/70fdtw" rel="nofollow">入口</a>
-      <a href="http://txjosoq.oyvrqu.ga/1" rel="nofollow">入口</a>
-      <a href="http://bhnzk.behjsd.gq/70ipdw" rel="nofollow">入口</a><br>
-      <a href="http://bhnzk.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://roxanqoz.behjsd.gq/70fdtw" rel="nofollow">入口</a>
+      <a href="http://dbwgzip.oyvrqu.ga/1" rel="nofollow">入口</a>
+      <a href="http://roxanqoz.behjsd.gq/70ipdw" rel="nofollow">入口</a><br>
+      <a href="http://roxanqoz.behjsd.gq/70sdtw" rel="nofollow">入口</a>
       <a href="https://bbvv.herokuapp.com/?jyg" rel="nofollow">入口</a>
       <a href="https://zhegekeyibu.herokuapp.com/?de" rel="nofollow">入口</a><br>
 
 <br>
 
-<p><a href="http://bhnzk.behjsd.gq/70sz" rel="nofollow">神州正道</a></p>
-<p><a href="http://bhnzk.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://bhnzk.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://roxanqoz.behjsd.gq/70sz" rel="nofollow">神州正道</a></p>
+<p><a href="http://roxanqoz.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://roxanqoz.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://36.233.44.40/2/" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3RI1Pc">三退自救1</a></p>
-<p><a href="http://bhnzk.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://roxanqoz.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3RI31e" rel="nofollow">网门视频1</a></p>
-<p><a href="http://anaujzz.paqhvdzv.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://qfiqycqd.tithmecb.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
