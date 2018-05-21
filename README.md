@@ -10,25 +10,25 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R33CYUx" rel="nofollow">入口</a>
-      <a href="http://219.85.110.101/1" rel="nofollow">入口</a>
-      <a href="http://ydbjx.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://ydbjx.gcashj.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://ydbjx.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://ydbjx.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://ydbjx.gcashj.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://ydbjx.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://ydbjx.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.110.98/1" rel="nofollow">入口</a>
+      <a href="http://igvhyn.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://igvhyn.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
+      <a href="http://igvhyn.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://igvhyn.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://igvhyn.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://igvhyn.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://igvhyn.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R33CY5A" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R33CYf4" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R33CYJB" rel="nofollow">无界浏览</a></p>
-<p><a href="http://ydbjx.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ydbjx.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://igvhyn.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://igvhyn.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R33CYwN">三退自救1</a></p>
-<p><a href="http://ydbjx.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://igvhyn.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R33CYPZ" rel="nofollow">网门视频1</a></p>
-<p><a href="http://coafrhz.hnglntgu.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://mtyzrqff.tugtdwdg.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
