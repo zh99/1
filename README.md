@@ -10,25 +10,25 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R3rNPwt" rel="nofollow">入口</a>
-      <a href="http://61.228.188.204/1" rel="nofollow">入口</a>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://zlcpxlcy.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.111.218/1" rel="nofollow">入口</a>
+      <a href="http://frjgm.psvdhgqa.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://frjgm.psvdhgqa.ml/70hdtw" rel="nofollow">入口</a>
+      <a href="http://frjgm.psvdhgqa.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://frjgm.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://frjgm.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://frjgm.psvdhgqa.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://frjgm.psvdhgqa.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3rNPyX" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3rNPGo" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3rNPcp" rel="nofollow">无界浏览</a></p>
-<p><a href="http://zlcpxlcy.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://zlcpxlcy.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://frjgm.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://frjgm.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3rNPPz">三退自救1</a></p>
-<p><a href="http://zlcpxlcy.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://frjgm.psvdhgqa.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3rNveT" rel="nofollow">网门视频1</a></p>
-<p><a href="http://jctwo.glhtvcy.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://hbolwlz.mpxkbe.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
