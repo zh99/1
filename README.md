@@ -10,25 +10,25 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R3rwzy7" rel="nofollow">入口</a>
-      <a href="http://219.85.111.214/1" rel="nofollow">入口</a>
-      <a href="http://onzub.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://onzub.gpzeukry.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://onzub.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://onzub.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://onzub.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://onzub.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://onzub.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.111.231/1" rel="nofollow">入口</a>
+      <a href="http://irogib.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://irogib.gcashj.ml/70hdtw" rel="nofollow">入口</a>
+      <a href="http://irogib.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://irogib.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://irogib.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://irogib.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://irogib.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3rwz5J" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3rwz6m" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3rwzNN" rel="nofollow">无界浏览</a></p>
-<p><a href="http://onzub.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://onzub.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://irogib.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://irogib.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3rwzzq">三退自救1</a></p>
-<p><a href="http://onzub.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://irogib.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3rw7Fn" rel="nofollow">网门视频1</a></p>
-<p><a href="http://gddhd.dcdfujql.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://lqvaajq.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
