@@ -10,25 +10,25 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R3rFb9q" rel="nofollow">入口</a>
-      <a href="http://61.228.188.204/1" rel="nofollow">入口</a>
-      <a href="http://quyduvf.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://quyduvf.gcashj.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://quyduvf.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://quyduvf.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://quyduvf.gcashj.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://quyduvf.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://quyduvf.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.183.16/1" rel="nofollow">入口</a>
+      <a href="http://qkqnslkk.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://qkqnslkk.yspjgjq.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://qkqnslkk.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://qkqnslkk.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://qkqnslkk.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://qkqnslkk.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://qkqnslkk.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3rFb0h" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3rFbl1" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3rFbQ3" rel="nofollow">无界浏览</a></p>
-<p><a href="http://quyduvf.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://quyduvf.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://qkqnslkk.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://qkqnslkk.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3rFba6">三退自救1</a></p>
-<p><a href="http://quyduvf.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://qkqnslkk.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3rFbJT" rel="nofollow">网门视频1</a></p>
-<p><a href="http://zfxflr.njenmg.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://bioggy.apvpeai.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
