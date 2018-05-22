@@ -10,25 +10,25 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R3dOa7F" rel="nofollow">入口</a>
-      <a href="http://219.85.111.236/1" rel="nofollow">入口</a>
-      <a href="http://pvbgukx.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://pvbgukx.nwrzawk.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://pvbgukx.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://pvbgukx.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://pvbgukx.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://pvbgukx.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://pvbgukx.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.183.16/1" rel="nofollow">入口</a>
+      <a href="http://ysnox.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://ysnox.behjsd.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://ysnox.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://ysnox.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://ysnox.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ysnox.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://ysnox.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3dOa2v" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3dOa4y" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3dOa57" rel="nofollow">无界浏览</a></p>
-<p><a href="http://pvbgukx.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://pvbgukx.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ysnox.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ysnox.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3dOXsj">三退自救1</a></p>
-<p><a href="http://pvbgukx.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://ysnox.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3dOXgk" rel="nofollow">网门视频1</a></p>
-<p><a href="http://bpohgif.ctwfyxqa.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://mnfacwa.nwvwf.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
