@@ -11,24 +11,24 @@ http://x.co/3322<br>
 <br>
       <a href="http://t.cn/R3FVHIh" rel="nofollow">入口</a>
       <a href="http://219.85.104.101/1" rel="nofollow">入口</a>
-      <a href="http://gyfhf.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://gyfhf.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
-      <a href="http://gyfhf.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://gyfhf.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://gyfhf.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://gyfhf.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://gyfhf.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://ckwpob.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://ckwpob.nwrzawk.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://ckwpob.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://ckwpob.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://ckwpob.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://ckwpob.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://ckwpob.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3FVHju" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3FV8jp" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3FV83x" rel="nofollow">无界浏览</a></p>
-<p><a href="http://gyfhf.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://gyfhf.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://ckwpob.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://ckwpob.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3FVHzz">三退自救1</a></p>
-<p><a href="http://gyfhf.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://ckwpob.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3FVTYp" rel="nofollow">网门视频1</a></p>
-<p><a href="http://lbcxb.lqpauv.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://nqyawq.ptaijhc.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -47,7 +47,7 @@ http://x.co/3322<br>
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<p><a href="https://jygbbs-1.herokuapp.com/" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="https://gt.t66t.ml/9.html" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://gt.t66t.ml/ij/" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="http://s3.zaas.cf" rel="nofollow">聚缘阁二站</a></p>
 <p><a href="https://gt.t66t.ml/523/?3654" rel="nofollow">动态网</a></p>
