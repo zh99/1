@@ -11,24 +11,24 @@ http://x.co/3322<br>
 <br>
       <a href="http://t.cn/R3eEq48" rel="nofollow">入口</a>
       <a href="http://219.85.104.95/1" rel="nofollow">入口</a>
-      <a href="http://nurvjkiu.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://nurvjkiu.behjsd.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://nurvjkiu.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://nurvjkiu.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://nurvjkiu.behjsd.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://nurvjkiu.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://nurvjkiu.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://txmpqond.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://txmpqond.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
+      <a href="http://txmpqond.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://txmpqond.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://txmpqond.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://txmpqond.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://txmpqond.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3eEq1t" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3eEqDZ" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3eE5Pd" rel="nofollow">无界浏览</a></p>
-<p><a href="http://nurvjkiu.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://nurvjkiu.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://txmpqond.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://txmpqond.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3eEqwk">三退自救1</a></p>
-<p><a href="http://nurvjkiu.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://txmpqond.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3eEqP9" rel="nofollow">网门视频1</a></p>
-<p><a href="http://txxua.axbiyssi.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://uhcuod.hnglntgu.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -57,32 +57,6 @@ http://x.co/3322<br>
 <p><a href="http://hj.521f.cf/by/?id=7" rel="nofollow">大纪元</a></p>
 <p><a href="http://hj.521f.cf/by/?id=11" rel="nofollow">看中国</a></p>
 <p><a href="http://hj.521f.cf/by/?id=16" rel="nofollow">禁书网</a></p>
-<td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
-  </tr>
-  <tr>
-    <td align="center">网门<br>
-      免翻墙，一键浏览全球精粹资源<br>
-      头条，影视，音乐，书刊，直播<br>
-      安全，稳定，高速，及时，便利<br>
-    </td>
-  </tr><tr>
-    <td align="center">请尝试不同入口，进入动态网址<br>      
-      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.amazonaws.com/ogate/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm?from=852" rel="nofollow">入口</a><br>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm?from=852" rel="nofollow">入口</a>
-      <a href="https://s3-ap-northeast-1.amazonaws.com/ogatet/show.htm?from=852" rel="nofollow">入口</a><br>
-      微信如提示停止访问该网页，须<br>
-      先点击右上角，选择浏览器打开<br>
-    </td>
-  </tr>
-  <tr>
-    <td align="center">
-      下载网门安卓版，更快，更方便<br><a href="https://raw.githubusercontent.com/oGate2/up/master/oGate.apk" rel="nofollow">https://git.io/ogatea2</a><br>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
