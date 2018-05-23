@@ -9,26 +9,26 @@ http://x.co/3322<br>
 <br>
 <strong>动态网</strong>
 <br>
-      <a href="http://t.cn/R3kGipP" rel="nofollow">入口</a>
+      <a href="http://t.cn/R3kXyyq" rel="nofollow">入口</a>
       <a href="http://219.85.104.67/1" rel="nofollow">入口</a>
-      <a href="http://qtson.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://qtson.yspjgjq.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://qtson.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://qtson.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://qtson.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://qtson.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://qtson.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://rbvlgg.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://rbvlgg.gcashj.ml/70hdtw" rel="nofollow">入口</a>
+      <a href="http://rbvlgg.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://rbvlgg.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://rbvlgg.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://rbvlgg.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://rbvlgg.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
-<p><a href="http://t.cn/R3kGil2" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/R3kGiQy" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/R3kGin0" rel="nofollow">无界浏览</a></p>
-<p><a href="http://qtson.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://qtson.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/R3kGiom">三退自救1</a></p>
-<p><a href="http://qtson.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/R3kGi6z" rel="nofollow">网门视频1</a></p>
-<p><a href="http://cchtrmlk.gdeetuiu.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/R3kXybs" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/R3kXycw" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/R3kXyx1" rel="nofollow">无界浏览</a></p>
+<p><a href="http://rbvlgg.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://rbvlgg.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://t.cn/R3kXy7t">三退自救1</a></p>
+<p><a href="http://rbvlgg.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://t.cn/R3kXLFR" rel="nofollow">网门视频1</a></p>
+<p><a href="http://oqghc.wdgerjs.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
