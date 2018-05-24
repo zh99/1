@@ -11,24 +11,24 @@ http://x.co/3322<br>
 <br>
       <a href="http://t.cn/R3sg4iv" rel="nofollow">入口</a>
       <a href="http://219.85.108.88/1" rel="nofollow">入口</a>
-      <a href="http://rwojjmf.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://rwojjmf.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
-      <a href="http://rwojjmf.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://rwojjmf.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://rwojjmf.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
-      <a href="http://rwojjmf.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://rwojjmf.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://gwbwm.psvdhgqa.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://gwbwm.psvdhgqa.ml/70hdtw" rel="nofollow">入口</a>
+      <a href="http://gwbwm.psvdhgqa.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://gwbwm.psvdhgqa.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://gwbwm.psvdhgqa.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://gwbwm.psvdhgqa.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://gwbwm.psvdhgqa.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R3sg4Or" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R3sg4YR" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R3sg4n4" rel="nofollow">无界浏览</a></p>
-<p><a href="http://rwojjmf.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://rwojjmf.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://gwbwm.psvdhgqa.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://gwbwm.psvdhgqa.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R3sg4AQ">三退自救1</a></p>
-<p><a href="http://rwojjmf.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://gwbwm.psvdhgqa.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R3sgUD4" rel="nofollow">网门视频1</a></p>
-<p><a href="http://itumeshr.xtwjc.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://piqctql.qulyn.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
