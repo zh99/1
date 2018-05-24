@@ -11,25 +11,25 @@ http://x.co/3322<br>
 <br>
       <a href="http://t.cn/R17ILQV" rel="nofollow">入口</a>
       <a href="http://219.85.108.215/1" rel="nofollow">入口</a>
-      <a href="http://lkvdvfb.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://lkvdvfb.gpzeukry.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://lkvdvfb.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://lkvdvfb.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://lkvdvfb.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://lkvdvfb.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://lkvdvfb.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://dijyueuf.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://dijyueuf.yspjgjq.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://dijyueuf.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://dijyueuf.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://dijyueuf.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://dijyueuf.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://dijyueuf.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R17ILRF" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R17ILmO" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R17IL1L" rel="nofollow">无界浏览</a></p>
-<p><a href="http://lkvdvfb.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://lkvdvfb.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://lkvdvfb.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://dijyueuf.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://dijyueuf.yspjgjq.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://dijyueuf.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R17ILjH">三退自救1</a></p>
-<p><a href="http://lkvdvfb.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://dijyueuf.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R17ILOj" rel="nofollow">网门视频1</a></p>
-<p><a href="http://mkowufo.ghqhhs.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://xjrgeodm.tlfsqgm.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
