@@ -9,27 +9,27 @@ http://x.co/3322<br>
 <br>
 <strong>动态网</strong>
 <br>
-      <a href="http://t.cn/R1Pc61r" rel="nofollow">入口</a>
+      <a href="http://t.cn/R1PKlZw" rel="nofollow">入口</a>
       <a href="http://219.85.108.102/1" rel="nofollow">入口</a>
-      <a href="http://kqmxbko.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://kqmxbko.yspjgjq.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://kqmxbko.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://kqmxbko.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://kqmxbko.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://kqmxbko.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://kqmxbko.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://tiuymfcd.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://tiuymfcd.yspjgjq.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://tiuymfcd.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://tiuymfcd.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://tiuymfcd.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://tiuymfcd.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://tiuymfcd.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
-<p><a href="http://t.cn/R1Pc6kL" rel="nofollow">大纪元新闻</a></p>
-<p><a href="http://t.cn/R1PcXhG" rel="nofollow">新唐人视频</a></p>
-<p><a href="http://t.cn/R1PcXwr" rel="nofollow">无界浏览</a></p>
-<p><a href="http://kqmxbko.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://kqmxbko.yspjgjq.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://kqmxbko.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
-<p><a href="http://t.cn/R1Pc6EO">三退自救1</a></p>
-<p><a href="http://kqmxbko.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
-<p><a href="http://t.cn/R1Pc6H7" rel="nofollow">网门视频1</a></p>
-<p><a href="http://zdutojty.tpfpneyx.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://t.cn/R1PKlyK" rel="nofollow">大纪元新闻</a></p>
+<p><a href="http://t.cn/R1PKlsb" rel="nofollow">新唐人视频</a></p>
+<p><a href="http://t.cn/R1PKjZ2" rel="nofollow">无界浏览</a></p>
+<p><a href="http://tiuymfcd.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://tiuymfcd.yspjgjq.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://tiuymfcd.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://t.cn/R1PKWsQ">三退自救1</a></p>
+<p><a href="http://tiuymfcd.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://t.cn/R1PKW6X" rel="nofollow">网门视频1</a></p>
+<p><a href="http://ynctnt.otxxmhrm.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
