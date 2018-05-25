@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://ccc3.cf">ccc3.cf</a></strong><br>
-<strong><a href="http://2.gp/ii">2.gp/ii</a></strong><br>
-<strong><a href="http://x.co/2555">x.co/2555</a></strong><br>
+<strong><a href="http://ccc2.gq">ccc2.gq</a></strong><br>
+<strong><a href="http://2.gp/zz">2.gp/zz</a></strong><br>
+<strong><a href="http://x.co/3339">x.co/3339</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1zOfzA" rel="nofollow">入口</a>
       <a href="http://61.228.222.26/1" rel="nofollow">入口</a>
-      <a href="http://etnek.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://etnek.gpzeukry.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://etnek.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://etnek.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://etnek.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://etnek.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://etnek.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://mtkzd.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://mtkzd.gcashj.ml/70hdtw" rel="nofollow">入口</a>
+      <a href="http://mtkzd.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://mtkzd.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://mtkzd.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://mtkzd.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://mtkzd.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1zOf5y" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1zOfnD" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1zOIZs" rel="nofollow">无界浏览</a></p>
-<p><a href="http://etnek.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://etnek.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://etnek.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://mtkzd.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://mtkzd.gcashj.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://mtkzd.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1zOVbS">三退自救1</a></p>
-<p><a href="http://etnek.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://mtkzd.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1zOVvY" rel="nofollow">网门视频1</a></p>
-<p><a href="http://wfrpcn.rmhdqmhj.ml" rel="nofollow">网门视频2</a></p>
+<p><a href="http://ctikzzh.qzxgfh.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
