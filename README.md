@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://7778.ga">7778.ga</a></strong><br>
-<strong><a href="http://2.gp/2222">2.gp/2222</a></strong><br>
-<strong><a href="http://x.co/3666">x.co/3666</a></strong><br>
+<strong><a href="http://6665.cf">6665.cf</a></strong><br>
+<strong><a href="http://2.gp/ww">2.gp/ww</a></strong><br>
+<strong><a href="http://x.co/3999">x.co/3999</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1wSU3H" rel="nofollow">入口</a>
       <a href="http://219.85.108.217/1" rel="nofollow">入口</a>
-      <a href="http://wichtu.gpzeukry.ml/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://wichtu.gpzeukry.ml/70hdtw" rel="nofollow">入口</a>
-      <a href="http://wichtu.gpzeukry.ml/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://wichtu.gpzeukry.ml/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://wichtu.gpzeukry.ml/70sdtw" rel="nofollow">入口</a>
-      <a href="http://wichtu.gpzeukry.ml/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://wichtu.gpzeukry.ml/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://nedcj.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://nedcj.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
+      <a href="http://nedcj.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://nedcj.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://nedcj.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://nedcj.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://nedcj.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1wSUgu" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1wS4vc" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1wS4ZD" rel="nofollow">无界浏览</a></p>
-<p><a href="http://wichtu.gpzeukry.ml/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://wichtu.gpzeukry.ml/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://wichtu.gpzeukry.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://nedcj.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://nedcj.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://nedcj.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1wSU8a">三退自救1</a></p>
-<p><a href="http://wichtu.gpzeukry.ml/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://nedcj.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1wSUWq" rel="nofollow">网门视频1</a></p>
-<p><a href="http://aipmlsqg.bbhheoap.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://kfcspx.qulyn.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
