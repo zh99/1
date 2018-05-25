@@ -10,26 +10,26 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1zAuS6" rel="nofollow">入口</a>
-      <a href="http://219.85.108.217/1" rel="nofollow">入口</a>
-      <a href="http://ptlexafg.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://ptlexafg.nwrzawk.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://ptlexafg.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://ptlexafg.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://ptlexafg.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://ptlexafg.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://ptlexafg.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://61.228.214.135/1" rel="nofollow">入口</a>
+      <a href="http://oyexijk.izrtcsf.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://oyexijk.izrtcsf.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://oyexijk.izrtcsf.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://oyexijk.izrtcsf.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://oyexijk.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://oyexijk.izrtcsf.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://oyexijk.izrtcsf.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1zAu9o" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1zAupu" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1zAujt" rel="nofollow">无界浏览</a></p>
-<p><a href="http://ptlexafg.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://ptlexafg.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://ptlexafg.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://oyexijk.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://oyexijk.izrtcsf.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://oyexijk.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1zAuiE">三退自救1</a></p>
-<p><a href="http://ptlexafg.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://oyexijk.izrtcsf.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1zAu51" rel="nofollow">网门视频1</a></p>
-<p><a href="http://hiqkjzkg.dfetjgfj.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://eyuioi.axbiyssi.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
