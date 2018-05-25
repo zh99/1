@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaab.cf">aaab.cf</a></strong><br>
-<strong><a href="http://2.gp/9999">2.gp/9999</a></strong><br>
-<strong><a href="http://x.co/9996">x.co/9996</a></strong><br>
+<strong><a href="http://6667.ga">6667.ga</a></strong><br>
+<strong><a href="http://2.gp/7777">2.gp/7777</a></strong><br>
+<strong><a href="http://x.co/3335">x.co/3335</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1wkwuj" rel="nofollow">入口</a>
       <a href="http://219.85.108.193/1" rel="nofollow">入口</a>
-      <a href="http://anikh.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://anikh.behjsd.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://anikh.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://anikh.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://anikh.behjsd.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://anikh.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://anikh.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://spcxakra.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://spcxakra.nwrzawk.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://spcxakra.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://spcxakra.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://spcxakra.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://spcxakra.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://spcxakra.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1wkwgS" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1wkA7m" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1wkAyJ" rel="nofollow">无界浏览</a></p>
-<p><a href="http://anikh.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://anikh.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://anikh.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://spcxakra.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://spcxakra.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://spcxakra.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1wkwl7">三退自救1</a></p>
-<p><a href="http://anikh.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://spcxakra.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1wkwCB" rel="nofollow">网门视频1</a></p>
-<p><a href="http://mgfbs.hefsaw.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://gwstenmw.awypk.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
