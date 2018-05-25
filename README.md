@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://ggg3.cf">ggg3.cf</a></strong><br>
-<strong><a href="http://2.gp/dd">2.gp/dd</a></strong><br>
-<strong><a href="http://x.co/4455">x.co/4455</a></strong><br>
+<strong><a href="http://6665.gq">6665.gq</a></strong><br>
+<strong><a href="http://2.gp/5555">2.gp/5555</a></strong><br>
+<strong><a href="http://x.co/2223">x.co/2223</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1z3H9O" rel="nofollow">入口</a>
       <a href="http://61.228.188.180/1" rel="nofollow">入口</a>
-      <a href="http://uezvvbmn.izrtcsf.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://uezvvbmn.izrtcsf.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://uezvvbmn.izrtcsf.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://uezvvbmn.izrtcsf.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://uezvvbmn.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://uezvvbmn.izrtcsf.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://uezvvbmn.izrtcsf.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://bnexnciu.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://bnexnciu.behjsd.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://bnexnciu.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://bnexnciu.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://bnexnciu.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://bnexnciu.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://bnexnciu.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1z3HOv" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1z3Hr7" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1z3Hkx" rel="nofollow">无界浏览</a></p>
-<p><a href="http://uezvvbmn.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://uezvvbmn.izrtcsf.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://uezvvbmn.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://bnexnciu.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://bnexnciu.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://bnexnciu.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1z3Hx4">三退自救1</a></p>
-<p><a href="http://uezvvbmn.izrtcsf.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://bnexnciu.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1z3HbX" rel="nofollow">网门视频1</a></p>
-<p><a href="http://fxcrlnkk.mpxkbe.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://appffuyh.vbrbgir.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
