@@ -10,26 +10,26 @@ http://x.co/3322<br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R17FYzs" rel="nofollow">入口</a>
-      <a href="http://219.85.108.217/1" rel="nofollow">入口</a>
-      <a href="http://pjipmr.izrtcsf.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://pjipmr.izrtcsf.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://pjipmr.izrtcsf.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://pjipmr.izrtcsf.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://pjipmr.izrtcsf.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://pjipmr.izrtcsf.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://pjipmr.izrtcsf.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://219.85.108.215/1" rel="nofollow">入口</a>
+      <a href="http://tnrkvv.behjsd.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://tnrkvv.behjsd.gq/70hdtw" rel="nofollow">入口</a>
+      <a href="http://tnrkvv.behjsd.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://tnrkvv.behjsd.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://tnrkvv.behjsd.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://tnrkvv.behjsd.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://tnrkvv.behjsd.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R17FYAj" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R17FYy3" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R17FYbW" rel="nofollow">无界浏览</a></p>
-<p><a href="http://pjipmr.izrtcsf.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://pjipmr.izrtcsf.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://pjipmr.izrtcsf.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://tnrkvv.behjsd.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://tnrkvv.behjsd.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://tnrkvv.behjsd.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R17FYhM">三退自救1</a></p>
-<p><a href="http://pjipmr.izrtcsf.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://tnrkvv.behjsd.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R17Fjsf" rel="nofollow">网门视频1</a></p>
-<p><a href="http://bwxuspxo.qicozx.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://wjbonix.spujqlqj.ml" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
