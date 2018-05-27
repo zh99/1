@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://bbb3.gq">bbb3.gq</a></strong><br>
-<strong><a href="http://2.gp/ee">2.gp/ee</a></strong><br>
-<strong><a href="http://x.co/3444">x.co/3444</a></strong><br>
+<strong><a href="http://aaab.gq">aaab.gq</a></strong><br>
+<strong><a href="http://2.gp/9999">2.gp/9999</a></strong><br>
+<strong><a href="http://x.co/3335">x.co/3335</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R14hCRR" rel="nofollow">入口</a>
       <a href="http://219.85.110.143/1" rel="nofollow">入口</a>
-      <a href="http://djgomw.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://djgomw.nwrzawk.gq/70hdtw" rel="nofollow">入口</a>
-      <a href="http://djgomw.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://djgomw.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://djgomw.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://djgomw.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://djgomw.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://virlnad.gmarenaq.ga/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://virlnad.gmarenaq.ga/70hdtw" rel="nofollow">入口</a>
+      <a href="http://virlnad.gmarenaq.ga/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://virlnad.gmarenaq.ga/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://virlnad.gmarenaq.ga/70sdtw" rel="nofollow">入口</a>
+      <a href="http://virlnad.gmarenaq.ga/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://virlnad.gmarenaq.ga/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R14hCuM" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R14hC1H" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R14hCdt" rel="nofollow">无界浏览</a></p>
-<p><a href="http://djgomw.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://djgomw.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://djgomw.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://virlnad.gmarenaq.ga/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://virlnad.gmarenaq.ga/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://virlnad.gmarenaq.ga/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R14hCQv">三退自救1</a></p>
-<p><a href="http://djgomw.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://virlnad.gmarenaq.ga/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R14hCjS" rel="nofollow">网门视频1</a></p>
-<p><a href="http://eirplbfv.llyoskx.gq" rel="nofollow">网门视频2</a></p>
+<p><a href="http://nytbbckk.cxhrucl.cf" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
