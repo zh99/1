@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://bbb2.cf">bbb2.cf</a></strong><br>
-<strong><a href="http://2.gp/zz">2.gp/zz</a></strong><br>
-<strong><a href="http://x.co/2299">x.co/2299</a></strong><br>
+<strong><a href="http://6667.ga">6667.ga</a></strong><br>
+<strong><a href="http://2.gp/2222">2.gp/2222</a></strong><br>
+<strong><a href="http://x.co/4445">x.co/4445</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1teLy2" rel="nofollow">入口</a>
       <a href="http://61.228.214.239/1" rel="nofollow">入口</a>
-      <a href="http://afvouwr.yspjgjq.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://afvouwr.yspjgjq.gq/70ydtw" rel="nofollow">入口</a>
-      <a href="http://afvouwr.yspjgjq.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://afvouwr.yspjgjq.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://afvouwr.yspjgjq.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://afvouwr.yspjgjq.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://afvouwr.yspjgjq.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://btamp.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://btamp.nwrzawk.gq/70ydtw" rel="nofollow">入口</a>
+      <a href="http://btamp.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://btamp.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://btamp.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
+      <a href="http://btamp.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://btamp.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1teLGD" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1teLf4" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1teLJs" rel="nofollow">无界浏览</a></p>
-<p><a href="http://afvouwr.yspjgjq.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://afvouwr.yspjgjq.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://afvouwr.yspjgjq.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://btamp.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://btamp.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://btamp.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1teLzq">三退自救1</a></p>
-<p><a href="http://afvouwr.yspjgjq.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://btamp.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1te2Dp" rel="nofollow">网门视频1</a></p>
-<p><a href="http://adlhrox.bbhheoap.ga" rel="nofollow">网门视频2</a></p>
+<p><a href="http://oimgxdma.gqrnivpt.gq" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
@@ -48,16 +48,16 @@
 <br>
 <p><strong>聚缘阁</strong></p>
 <p><a href="https://github.com/hao369/a/raw/master/j8.apk">聚缘阁代理安卓版</a></p>
-<p><a href="http://a33.bygg.tk/9.html" rel="nofollow">聚缘阁视频网</a></p>
+<p><a href="http://e3.521j.cf/9.html" rel="nofollow">聚缘阁视频网</a></p>
 <p><a href="http://j2.x23s.ml" rel="nofollow">聚缘阁一站</a></p>
 <p><a href="http://2z.s42f.ga" rel="nofollow">聚缘阁二站</a></p>
-<p><a href="https://a33.bygg.tk/524/?3654" rel="nofollow">动态网</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=8" rel="nofollow">退党网</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=5" rel="nofollow">新唐人</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=3" rel="nofollow">明慧网</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=7" rel="nofollow">大纪元</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=11" rel="nofollow">看中国</a></p>
-<p><a href="https://a33.bygg.tk/524/?id=16" rel="nofollow">禁书网</a></p>
+<p><a href="https://e3.521j.cf/524/?3654" rel="nofollow">动态网</a></p>
+<p><a href="https://e3.521j.cf/524/?id=8" rel="nofollow">退党网</a></p>
+<p><a href="https://e3.521j.cf/524/?id=5" rel="nofollow">新唐人</a></p>
+<p><a href="https://e3.521j.cf/524/?id=3" rel="nofollow">明慧网</a></p>
+<p><a href="https://e3.521j.cf/524/?id=7" rel="nofollow">大纪元</a></p>
+<p><a href="https://e3.521j.cf/524/?id=11" rel="nofollow">看中国</a></p>
+<p><a href="https://e3.521j.cf/524/?id=16" rel="nofollow">禁书网</a></p>
 <td align="center"><a target="_blank" href="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg"><img src="https://cloud.githubusercontent.com/assets/11880933/13434984/f430fae2-e012-11e5-814f-c2df1e82b247.jpg" style="max-width:100%;"></a></td>
   </tr>
   <tr>
