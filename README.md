@@ -3,33 +3,33 @@
 <p><strong>如果页面"error"出错，刷新一下。</strong></p>
 <br>
 <p><strong>简易网址</strong></p>
-<strong><a href="http://aaa3.gq">aaa3.gq</a></strong><br>
-<strong><a href="http://2.gp/9999">2.gp/9999</a></strong><br>
-<strong><a href="http://x.co/2444">x.co/2444</a></strong><br>
+<strong><a href="http://ccc3.ga">ccc3.ga</a></strong><br>
+<strong><a href="http://2.gp/pg">2.gp/pg</a></strong><br>
+<strong><a href="http://x.co/3366">x.co/3366</a></strong><br>
 <br>
 <strong>动态网</strong>
 <br>
       <a href="http://t.cn/R1fZ5of" rel="nofollow">入口</a>
       <a href="http://61.228.209.51/1" rel="nofollow">入口</a>
-      <a href="http://csthp.nwrzawk.gq/70cdtw" rel="nofollow">入口</a><br>
-      <a href="http://csthp.nwrzawk.gq/70ydtw" rel="nofollow">入口</a>
-      <a href="http://csthp.nwrzawk.gq/70ip03dw" rel="nofollow">入口</a>
-      <a href="http://csthp.nwrzawk.gq/70fdtw" rel="nofollow">入口</a><br>
-      <a href="http://csthp.nwrzawk.gq/70sdtw" rel="nofollow">入口</a>
-      <a href="http://csthp.nwrzawk.gq/70ip04dw" rel="nofollow">入口</a>
-      <a href="http://csthp.nwrzawk.gq/70hdtw" rel="nofollow">入口</a><br>
+      <a href="http://gxzlos.gcashj.ml/70cdtw" rel="nofollow">入口</a><br>
+      <a href="http://gxzlos.gcashj.ml/70ydtw" rel="nofollow">入口</a>
+      <a href="http://gxzlos.gcashj.ml/70ip03dw" rel="nofollow">入口</a>
+      <a href="http://gxzlos.gcashj.ml/70fdtw" rel="nofollow">入口</a><br>
+      <a href="http://gxzlos.gcashj.ml/70sdtw" rel="nofollow">入口</a>
+      <a href="http://gxzlos.gcashj.ml/70ip04dw" rel="nofollow">入口</a>
+      <a href="http://gxzlos.gcashj.ml/70hdtw" rel="nofollow">入口</a><br>
 
 <br>
 <p><a href="http://t.cn/R1fZ5C6" rel="nofollow">大纪元新闻</a></p>
 <p><a href="http://t.cn/R1fZ5Ox" rel="nofollow">新唐人视频</a></p>
 <p><a href="http://t.cn/R1fZ5TX" rel="nofollow">无界浏览</a></p>
-<p><a href="http://csthp.nwrzawk.gq/70gqg" rel="nofollow">营救善良</a></p>
-<p><a href="http://csthp.nwrzawk.gq/mjw" rel="nofollow">明见网</a></p>
-<p><a href="http://csthp.nwrzawk.gq/70gsj" rel="nofollow">起诉江泽民</a></p>
+<p><a href="http://gxzlos.gcashj.ml/70gqg" rel="nofollow">营救善良</a></p>
+<p><a href="http://gxzlos.gcashj.ml/mjw" rel="nofollow">明见网</a></p>
+<p><a href="http://gxzlos.gcashj.ml/70gsj" rel="nofollow">起诉江泽民</a></p>
 <p><a href="http://t.cn/R1fZ56g">三退自救1</a></p>
-<p><a href="http://csthp.nwrzawk.gq/70gst" rel="nofollow">三退自救2</a></p>
+<p><a href="http://gxzlos.gcashj.ml/70gst" rel="nofollow">三退自救2</a></p>
 <p><a href="http://t.cn/R1fZ5JP" rel="nofollow">网门视频1</a></p>
-<p><a href="http://tfwcpvko.cxhrucl.cf" rel="nofollow">网门视频2</a></p>
+<p><a href="http://efonk.nmeluml.ga" rel="nofollow">网门视频2</a></p>
 <p><strong>下载翻墙软件</strong></p>
 
 
